@@ -4,3 +4,10 @@
 
 " I would swallow my pride , I would choke on the rinds "
 " But the lack thereof would leave me empty inside "
+
+
+<p align="center">
+  <img src="(https://i.pinimg.com/736x/fd/ad/53/fdad537942b7f36d42931742f50033c2.jpg)" width="400">
+  <img src="https://i.pinimg.com/1200x/16/18/44/16184449df405e59596b77888a37cec2.jpg" width="400">
+  <img src="https://i.pinimg.com/736x/37/f0/3b/37f03b9ea0f0803f8b3afc2964731933.jpg" width="400">
+</p>
