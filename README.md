@@ -8,7 +8,10 @@ $\color{#87CEEB}{`✦ ˑ ִֶ 𓂃⊹જ⁀➴}$
 " I would swallow my pride , I would choke on the rinds "
 </br>" But the lack thereof would leave me empty inside "
 </p>
-
+<br>
+<br>
+<br>
+<br>
 <div align="center">
 <table>
   <tr>
