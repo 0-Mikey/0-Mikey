@@ -11,7 +11,6 @@ $\color{#87CEEB}{`✦ ˑ ִֶ 𓂃⊹જ⁀➴}$
 </br>" But the lack thereof would leave me empty inside "
 <br> 
 <br> 
-<br> 
 <br> 6𝘵𝘦𝘦𝘯 , 𝘵-𝘣𝘰𝘺 , 𝘶𝘴𝘢 
 
 </p>
