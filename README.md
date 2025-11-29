@@ -9,10 +9,9 @@ $\color{#87CEEB}{`✦ ˑ ִֶ 𓂃⊹જ⁀➴}$
 <p align="center">
 " I would swallow my pride , I would choke on the rinds "
 </br>" But the lack thereof would leave me empty inside "
-<br> 
-<br> 
+<br>  
 <br> 6𝘵𝘦𝘦𝘯 , 𝘵-𝘣𝘰𝘺 , 𝘶𝘴𝘢 
-
+<br> 𝘢𝘭𝘴𝘰 𝘳𝘦𝘧𝘦𝘳 𝘵𝘰 𝘮𝘦 𝘢𝘴 ; 𝘮𝘪𝘬𝘦𝘺 , 𝘬𝘢𝘪𝘳𝘰 , 𝘢𝘴𝘩𝘦𝘳 , 𝘰𝘳 𝘯𝘪𝘬𝘰𝘭𝘢𝘪
 </p>
 <br>
 <br>
