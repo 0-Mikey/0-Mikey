@@ -3,6 +3,8 @@
 </div>
 
 $\color{#87CEEB}{`✦ ˑ ִֶ 𓂃⊹જ⁀➴}$
+<br>
+<br>
 
 <p align="center">
 " I would swallow my pride , I would choke on the rinds "
