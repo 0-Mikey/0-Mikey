@@ -12,9 +12,9 @@ $\color{#87CEEB}{`✦ ˑ ִֶ 𓂃⊹જ⁀➴}$
 <div align="center">
 <table>
   <tr>
-    <td><img src="https://i.pinimg.com/736x/e7/73/f4/e773f4c0903131e5b66b71ab52dc5500.jpg" width="150" /></td>
+    <td><img src="https://64.media.tumblr.com/1929a36c4ff6f80e6af97b946e32e525/59d9a4f9b39ba62b-9b/s250x400/e7feaa42ebfa6996f8609d9a52e2e63dcb15e436.pnj" width="150" /></td>
     <td><img src="https://i.pinimg.com/736x/37/f0/3b/37f03b9ea0f0803f8b3afc2964731933.jpg" width="150" /></td>
-    <td><img src="https://i.pinimg.com/1200x/04/bf/88/04bf88a8c42a7f64d709c9e5d55a93a5.jpg" width="150" /></td>
+    <td><img src="https://64.media.tumblr.com/6de8f664fe9777303dd1c643a7d4d115/59d9a4f9b39ba62b-82/s250x400/271c5bade8df1bf824dbd381a8b3b7234dd5ecd3.pnj" width="150" /></td>
   </tr>
 </table>
 </div>
