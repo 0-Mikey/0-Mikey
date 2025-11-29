@@ -4,6 +4,7 @@
 $\color{#87CEEB}{`✦ ˑ ִֶ 𓂃⊹જ⁀➴}$
 
 <p align="center">
-" I would swallow my pride , I would choke on the rinds "
-</br>" But the lack thereof would leave me empty inside "
+$\color{#87CEEB}{" I would swallow my pride , I would choke on the rinds "
+</br>" But the lack thereof would leave me empty inside "}$
 </p>
+B2beb5
