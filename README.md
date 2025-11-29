@@ -8,3 +8,10 @@ $\color{#87CEEB}{`✦ ˑ ִֶ 𓂃⊹જ⁀➴}$
 </br>" But the lack thereof would leave me empty inside "
 </p>
 
+<table>
+  <tr>
+    <td><img src="https://i.pinimg.com/736x/e7/73/f4/e773f4c0903131e5b66b71ab52dc5500.jpg" width="150" /></td>
+    <td><img src="https://i.pinimg.com/736x/37/f0/3b/37f03b9ea0f0803f8b3afc2964731933.jpg" width="150" /></td>
+    <td><img src="https://i.pinimg.com/1200x/04/bf/88/04bf88a8c42a7f64d709c9e5d55a93a5.jpg" width="150" /></td>
+  </tr>
+</table>
