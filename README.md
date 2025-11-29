@@ -9,6 +9,11 @@ $\color{#87CEEB}{`✦ ˑ ִֶ 𓂃⊹જ⁀➴}$
 <p align="center">
 " I would swallow my pride , I would choke on the rinds "
 </br>" But the lack thereof would leave me empty inside "
+<br> 
+<br> 
+<br> 
+<br> 6𝘵𝘦𝘦𝘯 , 𝘵-𝘣𝘰𝘺 , 𝘶𝘴𝘢 
+
 </p>
 <br>
 <br>
