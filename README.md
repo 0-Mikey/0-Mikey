@@ -9,8 +9,9 @@ $\color{#4021DB}{​𓆩𓆪}$
 <p align="center">
 " I would swallow my pride , I would choke on the rinds "
 </br>" But the lack thereof would leave me empty inside "
-<br>  
-<br>working on this chillll
+<br> 
+<br> manly guy pronouns fr
+<br> working on this chillll
 <br>
 <br> i love house md sm omg bro everyone is so fine
 <br>
