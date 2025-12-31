@@ -16,7 +16,9 @@ $\color{#4021DB}{​𓆩𓆪}$
 </p>
 <br>
 <br>
-<br>
+<br> hannibal  | dexter | breaking bad | marvel, marvel, marvel, EVERY marvel movie | jw franchise | literally anything with jake gyllenhaal in it bro | supernatural | arcane | fightclub | scott pilgrim vs the world | superbad 
+<br>bsd | tdlosk | death note | bleach | hxh | fab | tokyo ghoul | hells paradise | jjk | mob100 | aot | csm | a silent voice | promised neverland | tbhk | sk8 | to your eternity | case study of vanitas | the summer hikaru died | assassination classroom | no.6 | pandora hearts 
+<br>cof | dead plate | danganronpa | mouthwashing
 <br>
 <div align="center">
  <center> 
