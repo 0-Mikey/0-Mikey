@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/1913100ea614e516868115ccc3ce18b3/0aad569ecb591b21-be/s250x400/c05ecc81271f0760cc8f3dc5e3c0b121d754b820.gifv" alt="Banner" width="800"/>
+  <img src="https://64.media.tumblr.com/e9572023399ab4c34cfeb3e5cfb472b9/22c82484855a2ac6-af/s1280x1920/b16527492cc1dc36ab347c39141425322c9fe029.pnj" alt="Banner" width="800"/>
 </div>
 
 $\color{#4021DB}{​𓆩𓆪}$
@@ -19,17 +19,6 @@ $\color{#4021DB}{​𓆩𓆪}$
 <br> 
 <br> uhh, bsd , tshd , ftrf , no6 , sote , & pandora hearts fr bro
 <br> 
-<br> <img src="https://64.media.tumblr.com/2d4f279b8759d170e2e11f382393b6c8/893cb087ba95cea5-c8/s100x200/76747eb073027aa3bc61547cd9453c52f246555b.pnj">
+<br> <img src="https://64.media.tumblr.com/ac7a186d94df212a25f8968e77d8e1cd/950d62c23572dc94-16/s250x400/d4326ecca792b99bac24f6b2f3f89a8367c87734.gifv">
 <br> 
 </p>
-<div align="center">
- <center> 
-<table>
-  <tr>
-    <td><img src="https://64.media.tumblr.com/06581e12fe4f4ca0b8febd3279748395/137008abb03cbb06-cf/s100x200/3719019a4bceda69f529d55113b8e7ac92d5e133.gifv" width="150" /></td>
-    <td><img src="https://64.media.tumblr.com/f33bc94f70aefb5bf869b4e9bff5c998/137008abb03cbb06-48/s100x200/d9fdfc91d813001d1c92d90d4e7c86aa6b6c50fb.gifv" width="150" /></td>
-    <td><img src="https://64.media.tumblr.com/997a8723285ffae669ea801a963f0eb5/137008abb03cbb06-4d/s100x200/5ec023442195ad30684a8504e0d2c3e8fec943e6.gifv" width="150" /></td>
-  </tr>
-</table>
-</div>
- </center>
