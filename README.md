@@ -1,6 +1,8 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/e9572023399ab4c34cfeb3e5cfb472b9/22c82484855a2ac6-af/s1280x1920/b16527492cc1dc36ab347c39141425322c9fe029.pnj" alt="Banner" width="800"/>
+  <img src="https://64.media.tumblr.com/e9572023399ab4c34cfeb3e5cfb472b9/22c82484855a2ac6-af/s1280x1920/b16527492cc1dc36ab347c39141425322c9fe029.pnj" alt="Banner" style="height:450px; width:auto;">
 </div>
+
+
 
 $\color{#4021DB}{​𓆩𓆪}$
 <br>
