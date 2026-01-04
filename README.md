@@ -19,7 +19,7 @@ $\color{#4021DB}{​𓆩𓆪}$
 <br> . . . and its written well too ig
 <br>
 <br> 
-<br> uhh, bsd , tshd , ftrf , no6 , sote , & pandora hearts fr bro
+<br> uhh, bsd , tshd , ftrf , no6 , sote , csm , & pandora hearts fr bro
 <br> 
 <br> <img src="https://64.media.tumblr.com/ac7a186d94df212a25f8968e77d8e1cd/950d62c23572dc94-16/s250x400/d4326ecca792b99bac24f6b2f3f89a8367c87734.gifv">
 <br> 
