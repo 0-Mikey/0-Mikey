@@ -20,7 +20,7 @@ $\color{#4021DB}{​𓆩𓆪}$
 <br>
 <br> BRO MY GOSH NOBODY I KNOW PLAYS PT
 <br> 
-<br> uhh, bsd , tshd , ftrf , no6 , sote , csm , & pandora hearts fr bro
+<br> uhh, bsd , tshd , ftrf , no6 , sote , csm , saihate , & pandora hearts fr bro
 <br>Wowza the popularity on the eng side of owm skyrocketed, how bad was that ending gng
 <br> 
 <br> <img src="https://64.media.tumblr.com/ac7a186d94df212a25f8968e77d8e1cd/950d62c23572dc94-16/s250x400/d4326ecca792b99bac24f6b2f3f89a8367c87734.gifv">
