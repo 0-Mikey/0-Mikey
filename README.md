@@ -15,6 +15,8 @@ $\color{#4021DB}{​𓆩𓆪}$
 <br> ima supa dork
 <br> working on this chillll
 <br>
+<br>currently working on three seperate rentry's and trying to save up money for those crazy expensive sote figures
+<br>
 <br> i love house md sm omg bro everyone is so fine
 <br> . . . and its written well too ig
 <br>
