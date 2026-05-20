@@ -33,4 +33,3 @@ $\color{#4021DB}{​𓆩𓆪}$
 <br><sub>strawpg, rentry, & carrd all wip</sub>
 <br><sub>no.6 , hikari be my light , sote , sk8 , black butler , tye , owm (not sg) , etc etc ill add more later skater</sub>
 <br>
-![](https://view-counter.tobyhagan.com/?user={0-mikey})
