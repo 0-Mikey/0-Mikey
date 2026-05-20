@@ -24,6 +24,11 @@ $\color{#4021DB}{​𓆩𓆪}$
 <br>
 <br>╰────── · · ⋆ · · ──────╯
 <br>
+<br>
 <div align="center">
   <img src="https://64.media.tumblr.com/3ad6335d5eb9b821d69028a5c496a681/0033d87132661341-01/s1280x1920/a160402ece992e156b80a55ad60634c6407c913a.pnj" alt="Banner" style="height:250px; width:900px;">
 </div>
+<br>
+<br>
+<br><sub>strawpg, rentry, & carrd all wip</sub>
+<br><sub>no.6 , hikari be my light , sote , sk8 , black butler , tye , owm (not sg) , etc etc ill add more later skater</sub>
