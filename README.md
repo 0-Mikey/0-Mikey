@@ -32,4 +32,5 @@ $\color{#4021DB}{​𓆩𓆪}$
 <br>
 <br><sub>strawpg, rentry, & carrd all wip</sub>
 <br><sub>hellsing , hsr , lychee hikari club , no.6 , hikari be my light , sote , black butler , tye , owm (not st) , etc etc ill add more later skater</sub>
+<br><sub>making ponies; mikaela/done ; schrodinger/done ; aoba/done ; sunday/current ; house/home</sub>
 <br>
