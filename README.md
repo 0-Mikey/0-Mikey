@@ -31,6 +31,6 @@ $\color{#4021DB}{​𓆩𓆪}$
 <br>
 <br>
 <br><sub>strawpg, rentry, & carrd all wip</sub>
-<br><sub>vampiric and cannibalistic enthusiast. disturbing media>></sub>
+<br><sub>vampiric and cannibalistic enthusiast. focuses ! togainu no chi ! litchi hikari club</sub>
 <br><sub>ponies; mikaela/done ; schrodinger/done ; aoba/done ; aventurine/done ; noctis/wip ; akechi/wip ; house/home</sub>
 <br>
